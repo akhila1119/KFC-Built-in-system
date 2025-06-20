@@ -1,1 +1,0 @@
-# KFC-Built-in-system
